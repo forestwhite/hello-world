@@ -1,2 +1,2 @@
 # hello-world
-The fallen shall be forever known as the emperor's finest
+The fallen shall be forever remembered as the emperor's finest
